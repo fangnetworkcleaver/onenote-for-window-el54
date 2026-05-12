@@ -1,4 +1,4 @@
-# 
+# Enhance OneNote for Windows with OneNote for Windows vip Tool: folders & dark-mode, the #1 tool. Includes folders and dark-mode for a smoother and more productive experience.
 
 
 
